@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ritulkumari18@gmail.com**
 
-- ⚡ Fun fact **I have been cooking since 2017, Indo-Chinese is my favourite cuisine**
+- ⚡ Fun fact **I can run upto 10 miles a day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
