@@ -1,5 +1,5 @@
 ![Masterhead](https://i.pinimg.com/originals/19/b2/8c/19b28c8372aaec65623f7ee7332e74be.gif)
-<h1 align="center">Hi 👋, This is Kumari Ritul</h1>
+<h1 align="center">Hi 👋, This is Ritul</h1>
 <h3 align="center">Navigating the Data Realm</h3>
 <img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/b5/43/44/b5434468a9f8a1fac71b1cf8d5502320.gif">
 
